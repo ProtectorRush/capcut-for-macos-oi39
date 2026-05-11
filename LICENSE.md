@@ -1,4 +1,4 @@
-
+CapCut for macOS professional Template: version-history & EQ offers the most advanced CapCut for macOS template, with version-history and EQ. Ideal for professional video editors
 
 
 
